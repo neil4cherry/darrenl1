@@ -2,7 +2,7 @@
  
  
  
-[GitHub Flavored Markdown](https://www.jianguoyun.com/p/Dcx2hAIQ9p7fBRjPsyY/).
+[GitHub Flavored Markdown](https://www.jianguoyun.com/p/Dcx2hAIQ9p7fBRjPsyY).
 
    
  
