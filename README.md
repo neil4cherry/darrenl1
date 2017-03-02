@@ -6,7 +6,7 @@
 
 [BOX 网盘下载](https://app.box.com/s/o686peb621tmv7gn8ggrpu6q57yad6ql).   
 
-[天翼云 网盘下载](http://cloud.189.cn/t/VJrAVreqA7fy (共享文件夹)).   
+[天翼云 网盘下载](http://cloud.189.cn/t/VJrAVreqA7fy).   
 
 
  
